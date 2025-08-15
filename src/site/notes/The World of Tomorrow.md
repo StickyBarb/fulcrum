@@ -11,7 +11,7 @@ While the world was gripped by paranoia and unrest, a magnitude 9.1 undersea ear
 
 As time passed, governments across the world implemented strict regulations on metahumans and their expressions, including licensing systems, mandatory testing and registration, as well as prohibitions on use. To curb metahuman crime, metahumans were deployed as state actors - no, as **superheroes**. Thus began the age of the modern **superhero**...
 
-# The Invasion of Chelyabinsk
+# The invasion of Chelyabinsk
 In February 2013, two years after the incident at the LHC, a meteor entered Earth's atmosphere undetected over the southern Ural region in Russia. When the meteor broke apart 30 kilometers over Chelyabinsk, exploding with enough force to shatter windows and injure the people within, news outlets marveled at the sheer scale of the blast, while videos of the fireball streaking over the city went viral online.
 
 Within hours, residents of Chelyabinsk began to report strange phenomena such as electronic devices behaving erratically, animals flying into hysteria, and tremors spreading beneath the city. In response, the Kremlin deployed an elite Russian superhuman team to secure the safety of the region.
@@ -22,7 +22,7 @@ While the superheroes managed to destroy the machines, human complacency had com
 
 In response, humanity united like never before. The nations of Earth began to strategize for the possibility of alien invasion, founding an agency unfettered by national allegiance - **A.E.G.I.S.**, the Alliance for Extraterrestrial Geostrategic Intelligence and Security. A shield, created not only to guard the planet from invaders, but also defend it from internal threats.
 
-# The World Moves On
+# The world moves on
 Despite everything, the world continues on. Humanity seeks the answer to a burning question: **what exactly happened on Valentine's Day, 2011?**
 
 Metahuman expressions continue manifesting across the human population. Scientists now believe that as much as **1%** of the global population have the potential to express superhuman abilities. Today, metahuman testing and specialized curriculums to help metahumans learn to control their abilities have become commonplace. Controversially, A.E.G.I.S. classifies individuals into **tiers** based on testing, and discrimination and prejudice towards metahumans is escalating.
@@ -34,5 +34,3 @@ World governments continue to monopolize individuals with strategic abilities. M
 Superheroes are the celebrities of the new age. In a world where superpowered accidents and attacks happen every day, people look to superheroes for hope. Yet, at the same time, superheroes are extensions of law enforcement, often powerless to enact systemic change. In response, **vigilantes** that reject governmental control work outside the law to help those abandoned by it.
 
 The existence of aliens, in addition to supernatural powers, have reshaped religion, philosophy, and culture. Unequal access to powers has created yet another class divide. Are "normal" people obsolete? Are metahumans human?
-
-[[Enter Fulcrum\|Enter Fulcrum]]
