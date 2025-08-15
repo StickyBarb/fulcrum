@@ -10,3 +10,27 @@ The emergence of **metahumans** - a term coined to describe those who had been a
 While the world was gripped by paranoia and unrest, a magnitude 9.1 undersea earthquake struck the Tōhoku region of Japan. Throughout the disaster, identified metahuman individuals defied the national lockdown order to help with the relief efforts. Sensationalized by the media, these metahumans became known as the first **superheroes**.
 
 As time passed, governments across the world implemented strict regulations on metahumans and their expressions, including licensing systems, mandatory testing and registration, as well as prohibitions on use. To curb metahuman crime, metahumans were deployed as state actors - no, as **superheroes**. Thus began the age of the modern **superhero**...
+
+# The Invasion of Chelyabinsk
+In February 2013, two years after the incident at the LHC, a meteor entered Earth's atmosphere undetected over the southern Ural region in Russia. When the meteor broke apart 30 kilometers over Chelyabinsk, exploding with enough force to shatter windows and injure the people within, news outlets marveled at the sheer scale of the blast, while videos of the fireball streaking over the city went viral online.
+
+Within hours, residents of Chelyabinsk began to report strange phenomena such as electronic devices behaving erratically, animals flying into hysteria, and tremors spreading beneath the city. In response, the Kremlin deployed an elite Russian superhuman team to secure the safety of the region.
+
+24 hours after the meteor's explosion, the team uncovered the truth: the meteor was actually an **alien** spacecraft, deploying tiny, self-replicating drones that were building... *something* in an elaborate labyrinth of tunnels beneath the city. As the superheroes battled alien machines that erupted from the earth, the world now knew that this was more than an isolated meteorological incident. It was an **invasion**.
+
+While the superheroes managed to destroy the machines, human complacency had come to an end. As the alien machines were destroyed, left a final message for humanity: **"Вы не одиноки. Вы не готовы."** *(You are not alone. You are not ready.)*
+
+In response, humanity united like never before. The nations of Earth began to strategize for the possibility of alien invasion, founding an agency unfettered by national allegiance - **A.E.G.I.S.**, the Alliance for Extraterrestrial Geostrategic Intelligence and Security. A shield, created not only to guard the planet from invaders, but also defend it from internal threats.
+
+# The World Moves On
+Despite everything, the world continues on. Humanity seeks the answer to a burning question: **what exactly happened on Valentine's Day, 2011?**
+
+Metahuman expressions continue manifesting across the human population. Scientists now believe that as much as **1%** of the global population have the potential to express superhuman abilities. Today, metahuman testing and specialized curriculums to help metahumans learn to control their abilities have become commonplace. Controversially, A.E.G.I.S. classifies individuals into **tiers** based on testing, and discrimination and prejudice towards metahumans is escalating.
+
+Massive labor displacement happened in the mid-2010s due to metahumans replacing workers in industries like construction and manufacturing. New jobs and industries have emerged, and scientific breakthroughs have changed the way we view physics, biology, and energy systems. Metahumanity has greatly advanced our understanding of the universe, while **biotechnology** and **nanotech** are beginning to see widespread use.
+
+World governments continue to monopolize individuals with strategic abilities. Metahumans capable of energy generation, matter manipulation, or environmental control are revolutionizing power production and material sciences. **Fossil fuels** are close to being a thing of the past, and scarcity-driven markets such as precious metals are may potentially collapse in the future.
+
+Superheroes are the celebrities of the new age. In a world where superpowered accidents and attacks happen every day, people look to superheroes for hope. Yet, at the same time, superheroes are extensions of law enforcement, often powerless to enact systemic change. In response, **vigilantes** that reject governmental control work outside the law to help those abandoned by it.
+
+The existence of aliens, in addition to supernatural powers, have reshaped religion, philosophy, and culture. Unequal access to powers has created yet another class divide. Are "normal" people obsolete? Are metahumans human?
